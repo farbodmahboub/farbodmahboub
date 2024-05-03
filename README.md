@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @farbodmahboub
+- 👋 Hi, I’m farbodmahboub
 - 👀 I’m interested in Lego 
 - 🌱 I’m currently learning hack 
 - 📫 How to reach me ? gmail
