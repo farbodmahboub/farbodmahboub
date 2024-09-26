@@ -1,5 +1,5 @@
 - 👋 Hi, I’m farbodmahboub
-- 👀 I’m interested in Lego 
+- 👀 I’m interested in math 
 - 🌱 I’m currently learning hack 
 - 📫 How to reach me ? gmail
 - 😄 Pronouns: f_a_r_b_o_d
